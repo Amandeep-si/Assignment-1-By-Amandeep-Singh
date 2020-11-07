@@ -1,1 +1,1 @@
-# Assignment-1-By-Amandeep-Singh
+# Assignment-Solutions-By-Amandeep-Singh
